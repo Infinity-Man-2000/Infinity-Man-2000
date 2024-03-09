@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding, Football, Videogames, etc
 - 🌱 I’m currently learning HTML... kinda embarrassing
 - 💞️ I have very little to no knowledge on coding
-- 📫 How to reach me email ig... ma1970277@gmail.com
+- 📫 How to reach me... By email-id ig, ma1970277@gmail.com
 - 😄 Pronouns: idk but I'm a Boy
 - ⚡ Fun fact: I'm 16!
 
